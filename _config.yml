@@ -1,0 +1,6 @@
+excerpt_separator: ""
+pygments: true
+markdown: kramdown
+url: http://nixcase.github.io
+title: nixcase
+paginate: 10
