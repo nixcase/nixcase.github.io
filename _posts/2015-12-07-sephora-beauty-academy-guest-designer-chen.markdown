@@ -1,0 +1,6 @@
+---
+published: true
+title: SEPHORA beauty Academy Guest Designer Chen
+layout: post
+---
+![Alt SEPHORA beauty Academy Guest Designer Chen](https://c2.staticflickr.com/6/5808/23560733045_c78d613886_z.jpg)Designer Chen personal brand: PariChen2001 layefe Hom of Yifei Group Chief Designer 2003 Shanshan group FIRS Ladies Designer [YOKA sports team Office of alternative plot](http://www.jigcase.com/2015/12/05/yoka-sports-team-office-of-alternative-plot/)2005 Tan fashion, feathers, as design Director2008 establishment of seats where the fashion company as the design Director2009 invitation of the Taichung Association of fine arts education in TaiwanCultural Arts Exchange and published works2010 \"Zhan-water asks\" collection published [YOKA sports team Office of alternative plot](http://www.jigcase.com/2015/12/05/yoka-sports-team-office-of-alternative-plot/)![Alt SEPHORA beauty Academy Guest Designer Chen](https://c2.staticflickr.com/6/5825/23560740065_a8a234a0b9_z.jpg)Designer beauty Academy guest design fashion
