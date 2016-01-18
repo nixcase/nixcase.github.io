@@ -1,0 +1,6 @@
+---
+published: true
+title: Breathable knitted cut shirts! Curved weave little sexy
+layout: post
+---
+Coincides with the season of winter, knit sweater still prevails. Openwork knit not only makes sexy shape vaguely appear, also a garment out changeable weather. Short cut sweaters put cute vest, with striped shorts, curvaceous s-shaped body to the imagination. In addition, white and bright candy colors are this season\'s hot color, don\'t miss it.![Alt Breathable knitted cut shirts! Curved weave little sexy](https://c2.staticflickr.com/2/1639/23828250923_fbc80e9dfa.jpg)Gradient openwork sweater with shorts [2012 spring public into cutting edge fashion point](http://www.focalstyle.com/2016/01/17/2012-spring-public-into-cutting-edge-fashion-point/) [2012 spring public into cutting edge fashion point](http://www.focalstyle.com/2016/01/17/2012-spring-public-into-cutting-edge-fashion-point/)![Alt Breathable knitted cut shirts! Curved weave little sexy](https://c2.staticflickr.com/2/1708/24428847256_42c016d222.jpg)Openwork Cardigan knitting matching print dress![Alt Breathable knitted cut shirts! Curved weave little sexy](https://c2.staticflickr.com/2/1589/23826856444_85faedbcdf.jpg)White knitted cut shirts with striped shortsWhite knitted cut shirts with print skirtsKnitted hollow hollow out small curves sexy sweater shirt woven breathable mix
