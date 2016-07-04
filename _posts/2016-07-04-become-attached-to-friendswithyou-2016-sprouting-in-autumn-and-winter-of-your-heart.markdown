@@ -1,0 +1,6 @@
+---
+published: true
+title: Become attached to FRIENDSWITHYOU 2016 sprouting in autumn and winter of your heart
+layout: post
+---
+![Alt Become attached to FRIENDSWITHYOU 2016 sprouting in autumn and winter of your heart](https://c2.staticflickr.com/8/7310/27476561333_2c423acf05_z.jpg)Neutral style design of the Union like Moncler FRIENDSWITHYOU special cooperation series products encompasses a down jacket, sweater, sweaters, shoes and bags, rich, playful style design features a perfect interpretation of the Declaration on the representation of extremely subtle ingenuity of artists-\"fun, luck, and friendship\". [Creative fashion WORLD WE MADE new series](http://www.focalstyle.com/2016/04/25/creative-fashion-world-we-made-new-series/) [Creative fashion WORLD WE MADE new series](http://www.focalstyle.com/2016/04/25/creative-fashion-world-we-made-new-series/)Cloud flower (Cloudy) is the dreamer in FRIENDSWITHYOU works, deeply interesting and sweet little light nestled in the gentle warm on Blue items, no doubt became the special cooperation series of representative works.
